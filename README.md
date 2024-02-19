@@ -1,4 +1,4 @@
-# Halo semua! 
+# Halo semua 👋 
 
 Perkenalkan nama saya **Gunawan Rohadi**.<br>
 
